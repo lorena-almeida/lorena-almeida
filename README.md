@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil da Lorena Almeida 😁
+## ✰* ೃ statistics ✰*ೃ 
 
  <div>
    <a href="https://github.com/lorena-almeida">
